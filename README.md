@@ -1,0 +1,1 @@
+# qa_pt_Yaroslav_Rudenko
